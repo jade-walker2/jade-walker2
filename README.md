@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jade-walker2
 
-Some of my favorite things to do are:
+Some of my favorite things to do are
 Hanging out with my family.
 Riding Snowmobiles.
 Riding Dirtbikes.
